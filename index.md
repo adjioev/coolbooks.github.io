@@ -50,6 +50,18 @@ Includes:
 + Financial Reports
 + Ratio Analysis
 
+# Quotes
+
+“Let us do your numbers while you run your business. Invest time into your next business idea, not into calculating your next tax return. We make our processes to run alongside your business to achieve your goals.”
+— CoolBooks
+
+-Knock, knock!  
+       -Who is there?
+             -CoolBooks        
+                  -CoolBooks who?
+                         -CoolBooks that work for you... 
+
+
 # Services
 
 ## BOOKKEEPING/ACCOUNTING
